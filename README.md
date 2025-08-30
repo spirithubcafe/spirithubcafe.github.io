@@ -1,1 +1,1 @@
-# spirithubcafe.github.com
+# spirithubcafe
