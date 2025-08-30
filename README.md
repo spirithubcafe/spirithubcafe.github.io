@@ -1,1 +1,1 @@
-# spirithubcafe
+# spirithubcafe.com
